@@ -1,4 +1,6 @@
-https://www.linkedin.com/in/bharat-jangid-b3891697 / https://twitter.com/bharatbhu111
+https://www.linkedin.com/in/bharat-jangid-b3891697 ![image](https://user-images.githubusercontent.com/31210376/112318326-ed77bc00-8cd2-11eb-8a65-2c7791b68d7b.png)
+ / https://twitter.com/bharatbhu111 ![image](https://user-images.githubusercontent.com/31210376/112318371-f9fc1480-8cd2-11eb-8673-55acac0914ab.png)
+
 
 
 
