@@ -1,3 +1,9 @@
+https://www.linkedin.com/in/bharat-jangid-b3891697 / https://twitter.com/bharatbhu111
+
+
+
+Who am I? 🤷
+
 - 👋 26-year-old boy from India 🇮🇳
 - 💻 Web Developer 📱
 - 👀 I’m interested in freelancing projects
