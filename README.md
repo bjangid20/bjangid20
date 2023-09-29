@@ -6,7 +6,7 @@ https://www.linkedin.com/in/bharat-jangid-b3891697 ![image](https://user-images.
 
 Who am I? 🤷
 
-- 👋 26-year-old boy from India 🇮🇳
+- 👋 Hello from India 🇮🇳
 - 💻 Web Developer 📱
 - 👀 I’m interested in freelancing projects
 - 🌱 I’m currently exploring flutter..
